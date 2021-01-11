@@ -1,5 +1,2 @@
 ### Hi there 👋
-
-Contact: cg2581.dev@gmail.com
-
-Facebook: fb.com/kdcbiet
+![](https://komarev.com/ghpvc/?username=cg2581)
