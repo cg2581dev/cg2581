@@ -1,3 +1,4 @@
 ### Hi there 👋
 
-Contact: fb.com/kdcbiet
+Contact: cg2581.dev@gmail.com
+Facebook: fb.com/kdcbiet
